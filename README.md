@@ -1,2 +1,2 @@
 # The-Unseen-Eyes-of-the-City
-TÜBİTAK projesi olarak hazırlıkları devam ediyor
+..... proje olarak hazırlıkları devam ediyor
